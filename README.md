@@ -1,4 +1,3 @@
-<Title> Hello and welcome!!! </Title>
 ## Hello!!!
 # My name is formally 0cean_mp4, but you can call me any variation of that or Ellie.
 # I’m currently working on coding a basic website and staying #woke...
@@ -19,4 +18,4 @@
 -  How to reach me: send me a message over on discord .. 0cean_mp4 !
 -  Pronouns: ask/they
 
-<footer> see the bottom to spot some of my art ... portfolio will be here soon lolll im lazzyyy </footer>
+see the bottom to spot some of my art ... portfolio will be here soon lolll im lazzyyy 
