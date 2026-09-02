@@ -7,6 +7,7 @@
 # -  How to reach me: send me a message over on discord .. 0cean_mp4 !
 # -  Pronouns: ask/they
 <footer> in any case, go watch my awesome YouTube videos...... <a href="(https://www.youtube.com/@0cean.mp44)/">https://www.youtube.com/@0cean.mp44</a></footer>
+<footer> and also, clicking on the strawpage attached to my channel leads you to allllll my other stuff! </footer>
 
 <!--
 -  I’m currently working on coding a basic website and staying #woke...
