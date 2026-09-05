@@ -1,5 +1,5 @@
 ## Hello!!!
-# My name is formally 0cean_mp4, but you can call me any variation of that or Ellie.
+# My name is formally 0cean_mp4, but you can call me any variation of that or Finn.
 # I’m currently working on coding a basic website and staying #woke...
 # -  I’m currently learning basics in coding . . off of that, mostly digital art :P
 # - I'm a minor.. 16yrs. Creeps dni
